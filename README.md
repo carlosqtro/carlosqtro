@@ -1,1 +1,1 @@
-👋 Hi, I’m @carlosqtro
+Hi, I’m @carlosqtro
